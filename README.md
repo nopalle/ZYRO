@@ -5,4 +5,4 @@
   MENDING [KESINI](https://t.me/bokepterbaru2) DEH BANYAK ASUPAN
 
 
-<img src="https://giphy.com/gifs/illustration-animal-xUPGcHNUupFuFkPXaw/giphy.gif">
+<img src="https://giphy.com/gifs/illustration-animal-xUPGcHNUupFuFkPXaw">
