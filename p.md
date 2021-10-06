@@ -6,4 +6,4 @@
   oke makasi luvyu muah
 
   
-<img src="https://telegra.ph/file/111c27c7383715643bc93.mp4">
+<gif src="https://telegra.ph/file/111c27c7383715643bc93.mp4">
