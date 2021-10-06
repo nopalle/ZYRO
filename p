@@ -5,4 +5,3 @@
 
   oke makasi luvyu muah
 
-
